@@ -1,0 +1,1 @@
+A lot of people like to say that the tools don't make the artist, and that's true as far as it goes. An artist can and will create art with whatever is at hand, especially the capital a Artist types. However, to claim that the tools don't matter is simply wrong.  If it wasn't, everyone would be shooting movies on iPhones and painting with finger paints. 

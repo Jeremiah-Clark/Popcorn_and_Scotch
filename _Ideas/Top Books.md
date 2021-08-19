@@ -1,0 +1,22 @@
+- Productivity
+- Inspiration
+    - Steal like an artist
+    - Understanding Comics
+- Art books
+    - Journey
+    - Making a Champion
+    - Tangled
+    - The Huntsman
+    - Swords
+- Design books
+	- 
+- Reference books
+- SciFi
+    - Enders Game
+    - Children of Time
+    - Bobiverse
+    - Neuromancer
+- Fantasy
+- Mental Well-being
+    - Quiet
+    - Buddhist Bootcamp
