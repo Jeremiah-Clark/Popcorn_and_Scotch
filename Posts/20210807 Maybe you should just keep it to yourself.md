@@ -42,7 +42,7 @@ So it’s her call.
 
 Period.
 
-> **PS**: I recognize that this being my first entry in a blog that will consist primarily of my opinions is a ballsy move.
-> It may come back to haunt me.
-> If it does, well, that’s only fair.
-> All I can say is that I’ll try to stick to topics I am qualified to comment on, and provide sources when I’m not.
+**PS**: I recognize that this being my first entry in a blog that will consist primarily of my opinions is a ballsy move.
+It may come back to haunt me.
+If it does, well, that’s only fair.
+All I can say is that I’ll try to stick to topics I am qualified to comment on, and provide sources when I’m not.
