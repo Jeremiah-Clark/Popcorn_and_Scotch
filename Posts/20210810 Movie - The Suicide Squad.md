@@ -32,7 +32,7 @@ Light spoilers, and the Red Band version of the meme above, after the jump.
 
 ---
 
-![Yes, still.](_attachments/828fd5134c1d42eabffa9cee91382509.png)
+{>} ![Yes, still.](_attachments/828fd5134c1d42eabffa9cee91382509.png)
 
 I mentioned that the opening scene was worrying.
 It felt like a continuation of the first movie, but I suspect that was on purpose.
