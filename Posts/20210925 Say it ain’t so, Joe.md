@@ -6,7 +6,7 @@ Tags:  Podcast, Snark
 
 # Say it ain’t so, Joe
 
-![](_attachments/OhJoe.jpg)
+{>|} ![](_attachments/OhJoe.jpg)
 
 I do hope Joe Rogan recovers from COVID soon. He needs to get back to handing out dangerous medical advice and decrying how hard life is for straight white dudes.
 
