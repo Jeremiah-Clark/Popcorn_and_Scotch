@@ -1,1 +1,0 @@
-Read this book if you want to take good photos

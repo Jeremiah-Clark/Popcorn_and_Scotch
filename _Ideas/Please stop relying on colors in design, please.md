@@ -1,1 +1,0 @@
-[From a colourblind designer to the world: please stop using red and green together | by Andrew Wilshere | Jul, 2021 | UX Collective](https://uxdesign.cc/from-a-colourblind-designer-to-the-world-please-stop-using-red-and-green-together-b311f321832c)

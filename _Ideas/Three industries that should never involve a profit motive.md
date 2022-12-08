@@ -1,3 +1,0 @@
-Education
-Healthcare
-Incarceration
